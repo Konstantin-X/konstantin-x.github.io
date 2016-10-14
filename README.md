@@ -1,1 +1,0 @@
-# konstantin-x.github.io
